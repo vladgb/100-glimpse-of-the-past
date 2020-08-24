@@ -1,5 +1,9 @@
 # 100-glimpse-of-the-past
 
+Find the flag i've hidden.
+
+Here are some random quotes related to prehistoric times:
+
 Drawing is still basically the same as it has been since prehistoric times. It brings together man and the world. It lives through magic. Keith Haring
 Read more at https://www.brainyquote.com/topics/prehistoric-quotes
 
